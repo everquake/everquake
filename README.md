@@ -17,3 +17,5 @@ We're getting there!
 Whatever it takes, it will happen.
 
 Can't believe it's not out yet.
+
+Early bird gets the worm.
