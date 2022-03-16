@@ -21,3 +21,5 @@ Can't believe it's not out yet.
 Early bird gets the worm.
 
 No way dude.
+
+Слава Украине!
