@@ -23,3 +23,5 @@ Early bird gets the worm.
 No way dude.
 
 Слава Украине!
+
+Миру - мир.
