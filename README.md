@@ -27,3 +27,5 @@ No way dude.
 Миру - мир.
 
 Нет войне.
+
+Say no to the war.
