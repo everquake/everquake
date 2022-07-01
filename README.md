@@ -29,3 +29,5 @@ No way dude.
 Нет войне.
 
 Say no to the war.
+
+Werd.
