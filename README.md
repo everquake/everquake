@@ -62,6 +62,8 @@ Oh gawd.
 
 Jesus allmighty.
 
+Waiiiiiit a sekund.
+
 Wat??
 
 Hhhhhhholy baba ganoush.
