@@ -77,3 +77,5 @@ Det går bra.
 Men inte alltid.
 
 Men oftast!
+
+Selamat datang!
